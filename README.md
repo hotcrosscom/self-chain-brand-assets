@@ -1,1 +1,1 @@
-# self-chain-brand-assets
+Self Chain Brand Assets
